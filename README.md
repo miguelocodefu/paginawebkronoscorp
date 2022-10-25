@@ -1,3 +1,3 @@
 # paginawebkronoscorp
 
-pruebas de acceso y lecturaxccdc
+daniel es un pendeje
